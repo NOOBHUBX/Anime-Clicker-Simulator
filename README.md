@@ -1,1 +1,0 @@
-# Anime-Clicker-Simulator
